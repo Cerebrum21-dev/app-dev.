@@ -7,8 +7,6 @@ My first repository
 
 **Transformers** :robot:🚗🤸‍♀️🤖
 
-![Transformers](https://example.com/transformers_image)
-
 **Plot**  
 _The latest Transformer movie is like... IDK bro, it’s a vibe!_  
 Imagine giant alien robots, but they’ve got major **main character energy**. 💀 Optimus is out here dropping wisdom bombs, but lowkey Bumblebee is still the GOAT 🐝.
