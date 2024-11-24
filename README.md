@@ -7,10 +7,6 @@ My first repository
 
 **Transformers** :robot:🚗🤸‍♀️🤖
 
-**Ben 10** 👽⌚
-
-**Arcane** 🥊👩‍❤️‍💋‍👩🧁
-
 
 
 
