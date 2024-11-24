@@ -1,5 +1,21 @@
 # app-dev.
 My first repository
 
-**My Favorite Series/Movie 😂 ![download](https://github.com/user-attachments/assets/bffd89b6-6c59-4c45-8892-3b1518c9a1c7)
+**My Favorite Series/Movie** 😂 ![download (1)](https://github.com/user-attachments/assets/46b1b286-7200-457b-a082-3dfd8a02a0ff)
+
+**Transformers**   **TRUCK** :TRUCK:
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
