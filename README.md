@@ -1,4 +1,4 @@
 # app-dev.
 My first repository
 
-**My Favorite Series/Movies** :joy:
+**My Favorite Series/Movies** 😄:
